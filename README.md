@@ -1,10 +1,4 @@
-
-
-https://github.com/user-attachments/assets/01ac7060-2910-4aa5-81dc-e082906581c9
-
-
 ![cooltext503105856530819](https://github.com/user-attachments/assets/83540e31-f094-4ea2-b91e-295740490dae)
-
 ![ezgif com-cut (2)](https://github.com/user-attachments/assets/ca22a538-e869-4096-8caf-00c2cfaed723)
 ![VideoProject3-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/7fde7e0a-4fc5-4601-bb04-b939f5ccd617)
 ![ezgif-35b159ba5d299662](https://github.com/user-attachments/assets/2036a33f-a2a6-45c9-948c-b7b7d97788bf)
