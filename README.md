@@ -21,11 +21,11 @@
 
 ![cooltext503105856530819](https://github.com/user-attachments/assets/83540e31-f094-4ea2-b91e-295740490dae)
 
+<img width="730" height="99" alt="2026_06_20_12a_Kleki (1)" src="https://github.com/user-attachments/assets/6c1b2670-95b1-4b37-803b-990d9a0b253c" />
+
 <img width="360" height="202" alt="awcxhs_1" src="https://github.com/user-attachments/assets/57b60147-7b8a-482e-8abb-ee9d7ac2ace7" /> <img width="141" height="129" alt="9yzmgp" src="https://github.com/user-attachments/assets/23934bef-ddd1-49ed-af58-ac3c3f83f8fe" />
 <img width="360" height="202" alt="a84ymq" src="https://github.com/user-attachments/assets/072d3c66-50b2-44d5-83b9-af6c2dea5a5b" />  <img width="112" height="112" alt="hog_pet_pet" src="https://github.com/user-attachments/assets/21abe50a-29c7-4667-8d39-ad7c0c17eb31" />
 
-
-<img width="730" height="99" alt="2026_06_20_12a_Kleki (1)" src="https://github.com/user-attachments/assets/6c1b2670-95b1-4b37-803b-990d9a0b253c" />
 
 
 
