@@ -28,4 +28,6 @@
 ![VideoProject3-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/7fde7e0a-4fc5-4601-bb04-b939f5ccd617)
 ![ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/1f78421f-60ab-4538-9e41-80f08cc98787)
 <img width="800" height="691" alt="ezgif com-video-to-gif-converter_15" src="https://github.com/user-attachments/assets/6ef32ce8-aac9-4f5f-91bf-90232456cff0" />
+<img width="260" height="238" alt="awgkzj" src="https://github.com/user-attachments/assets/ae5d222d-6e43-4dad-80f8-2529f67d1b9e" />
+<img width="260" height="277" alt="awgl09" src="https://github.com/user-attachments/assets/64e890a0-d424-417e-b1bc-36606e01ff03" />
 
