@@ -28,13 +28,12 @@
 
 ![cooltext503105856530819](https://github.com/user-attachments/assets/83540e31-f094-4ea2-b91e-295740490dae)
 
-<img width="730" height="99" alt="2026_06_20_12a_Kleki (1)" src="https://github.com/user-attachments/assets/6c1b2670-95b1-4b37-803b-990d9a0b253c" />
 
-<img width="360" height="202" alt="awcxhs_1" src="https://github.com/user-attachments/assets/57b60147-7b8a-482e-8abb-ee9d7ac2ace7" /> <img width="141" height="129" alt="9yzmgp" src="https://github.com/user-attachments/assets/23934bef-ddd1-49ed-af58-ac3c3f83f8fe" />
-<img width="360" height="202" alt="a84ymq" src="https://github.com/user-attachments/assets/072d3c66-50b2-44d5-83b9-af6c2dea5a5b" />  <img width="112" height="112" alt="hog_pet_pet" src="https://github.com/user-attachments/assets/21abe50a-29c7-4667-8d39-ad7c0c17eb31" />
-<img width="112" height="112" alt="737467bb-141a-480a-a850-b0f685f9ec24" src="https://github.com/user-attachments/assets/b06ea283-8c09-41f7-83ba-86051e06f998" />
-<img width="280" height="250" alt="bandicam2026-07-1421-06-19-239-ezgif com-video-to-gif-converter (1)" src="https://github.com/user-attachments/assets/af80746a-5c8a-458b-9c27-942af089f648" />
-<img width="800" height="704" alt="ezgif com-video-to-gif-converter (17) (4)" src="https://github.com/user-attachments/assets/fb807e4b-ed5b-4ad3-b6c7-8f493f48a56b" />
+<img width="730" height="99" alt="2026_06_20_12a_Kleki (1)" src="https://github.com/user-attachments/assets/6c1b2670-95b1-4b37-803b-990d9a0b253c" /> 
+
+
+<img width="112" height="112" alt="hog_pet_pet" src="https://github.com/user-attachments/assets/21abe50a-29c7-4667-8d39-ad7c0c17eb31" /> <img width="112" height="112" alt="35a73ef0-d37c-40cf-b8ce-94e919f3d45a" src="https://github.com/user-attachments/assets/4b002a5b-8055-4fb7-a3c0-408fbaf82597" /> <img width="112" height="112" alt="3c076398-9709-493c-aaa9-06e678273d8a" src="https://github.com/user-attachments/assets/d848a3f6-ac6a-48dc-858d-98072f30352d" /> <img width="112" height="112" alt="c9f4b920-093c-410d-9a02-8796745fa018" src="https://github.com/user-attachments/assets/e1668a0b-b651-4dd9-af4c-20a790ad3839" /> <img width="112" height="112" alt="9651691b-a974-43e3-a16e-89a679440d16" src="https://github.com/user-attachments/assets/d4b03207-299b-4fc0-b6ff-62c8ef7d5c54" /> <img width="112" height="112" alt="737467bb-141a-480a-a850-b0f685f9ec24" src="https://github.com/user-attachments/assets/b06ea283-8c09-41f7-83ba-86051e06f998" /> <img width="112" height="112" alt="9yzmgp" src="https://github.com/user-attachments/assets/23934bef-ddd1-49ed-af58-ac3c3f83f8fe" />    <img width="360" height="202" alt="awcxhs_1" src="https://github.com/user-attachments/assets/57b60147-7b8a-482e-8abb-ee9d7ac2ace7" />  <img width="360" height="202" alt="a84ymq" src="https://github.com/user-attachments/assets/072d3c66-50b2-44d5-83b9-af6c2dea5a5b" />
+ <img width="280" height="250" alt="bandicam2026-07-1421-06-19-239-ezgif com-video-to-gif-converter (1)" src="https://github.com/user-attachments/assets/af80746a-5c8a-458b-9c27-942af089f648" /> <img width="280" height="250" alt="ezgif com-video-to-gif-converter (17) (4)" src="https://github.com/user-attachments/assets/fb807e4b-ed5b-4ad3-b6c7-8f493f48a56b" /> <img width="260" height="238" alt="awgkzj" src="https://github.com/user-attachments/assets/ae5d222d-6e43-4dad-80f8-2529f67d1b9e" /> <img width="260" height="277" alt="awgl09" src="https://github.com/user-attachments/assets/64e890a0-d424-417e-b1bc-36606e01ff03" /> <img width="280" height="280" alt="IMG_4457" src="https://github.com/user-attachments/assets/e2a4fb55-3473-4ac1-9f86-ea11c2ad7aaa" /> <img width="332" height="261" alt="hog" src="https://github.com/user-attachments/assets/642b371c-8589-4094-b72e-b53536c6cd69" /> <img width="311" height="192" alt="ezgif-68447fc9af74cc" src="https://github.com/user-attachments/assets/a4d90a75-5908-4426-be9b-9717220cafb8" />
 
 
 
@@ -43,11 +42,11 @@
 ![ezgif com-cut (2)](https://github.com/user-attachments/assets/ca22a538-e869-4096-8caf-00c2cfaed723)
 ![VideoProject3-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/7fde7e0a-4fc5-4601-bb04-b939f5ccd617)
 ![ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/1f78421f-60ab-4538-9e41-80f08cc98787)
+<img width="720" height="396" alt="ezgif com-video-to-gif-converter_5" src="https://github.com/user-attachments/assets/5d45f245-a77c-40fe-8348-ea1ca00d61f4" />
+<img width="800" height="313" alt="ezgif com-gif-maker (1) (1)" src="https://github.com/user-attachments/assets/6369c97a-f96e-422d-9d9c-6e515938806c" />
 <img width="800" height="691" alt="ezgif com-video-to-gif-converter_15" src="https://github.com/user-attachments/assets/6ef32ce8-aac9-4f5f-91bf-90232456cff0" />
-<img width="260" height="238" alt="awgkzj" src="https://github.com/user-attachments/assets/ae5d222d-6e43-4dad-80f8-2529f67d1b9e" />
-<img width="260" height="277" alt="awgl09" src="https://github.com/user-attachments/assets/64e890a0-d424-417e-b1bc-36606e01ff03" />
 <img width="414" height="398" alt="ezgif com-video-to-gif-converter_18" src="https://github.com/user-attachments/assets/c6f5f965-cff8-459c-8584-23689e2b667e" />
-<img width="396" height="380" alt="ezgif com-video-to-gif-converter_19" src="https://github.com/user-attachments/assets/7d83c315-d00c-46ed-a6d9-2031bd2f2492" /> <img width="642" height="569" alt="IMG_4457" src="https://github.com/user-attachments/assets/e2a4fb55-3473-4ac1-9f86-ea11c2ad7aaa" />
+<img width="396" height="380" alt="ezgif com-video-to-gif-converter_19" src="https://github.com/user-attachments/assets/7d83c315-d00c-46ed-a6d9-2031bd2f2492" />
 
 
 
@@ -56,39 +55,30 @@
 
 <img width="800" height="376" alt="ezgif com-video-to-gif-converter (19)" src="https://github.com/user-attachments/assets/ca6722ce-75dd-4cc2-85bd-2f317c8aa013" />
 
-<img width="500" height="500" alt="picmix com_12171547" src="https://github.com/user-attachments/assets/2f05fec7-89f6-4be2-9954-d5250a4db0ec" />
+<img width="280" height="280" alt="picmix com_12171547" src="https://github.com/user-attachments/assets/2f05fec7-89f6-4be2-9954-d5250a4db0ec" />
 
 
-<img width="112" height="112" alt="35a73ef0-d37c-40cf-b8ce-94e919f3d45a" src="https://github.com/user-attachments/assets/4b002a5b-8055-4fb7-a3c0-408fbaf82597" /> <img width="112" height="112" alt="3c076398-9709-493c-aaa9-06e678273d8a" src="https://github.com/user-attachments/assets/d848a3f6-ac6a-48dc-858d-98072f30352d" /> <img width="112" height="112" alt="c9f4b920-093c-410d-9a02-8796745fa018" src="https://github.com/user-attachments/assets/e1668a0b-b651-4dd9-af4c-20a790ad3839" /><img width="112" height="112" alt="9651691b-a974-43e3-a16e-89a679440d16" src="https://github.com/user-attachments/assets/d4b03207-299b-4fc0-b6ff-62c8ef7d5c54" />
-<img width="260" height="212" alt="afch5m" src="https://github.com/user-attachments/assets/5f931427-c2fe-48db-af1c-8b1e545ba3e9" />
-<img width="214" height="87" alt="adc6o8" src="https://github.com/user-attachments/assets/bbf99588-4301-4385-9207-e246cf2adef6" />
-<img width="214" height="120" alt="a8527k" src="https://github.com/user-attachments/assets/40016c2b-78cf-40d9-a539-1d24e97e545a" />
-<img width="161" height="120" alt="a8521y" src="https://github.com/user-attachments/assets/0a5b5cab-ff32-48a9-adf8-ea13b5a213bf" />
-<img width="332" height="261" alt="hog" src="https://github.com/user-attachments/assets/642b371c-8589-4094-b72e-b53536c6cd69" />
-<img width="426" height="240" alt="Untitled_video_-_Made_with_Clipchamp_1" src="https://github.com/user-attachments/assets/d98d59a3-c66a-4717-92e7-cfc5e95e70bd" />
+<img width="280" height="280" alt="afch5m" src="https://github.com/user-attachments/assets/5f931427-c2fe-48db-af1c-8b1e545ba3e9" />
+<img width="284" height="210" alt="a8527k" src="https://github.com/user-attachments/assets/40016c2b-78cf-40d9-a539-1d24e97e545a" />
+<img width="280" height="280" alt="a8521y" src="https://github.com/user-attachments/assets/0a5b5cab-ff32-48a9-adf8-ea13b5a213bf" />
 
 
 
 
 
+
+
+
+
+<img width="426" height="280" alt="Untitled_video_-_Made_with_Clipchamp_1" src="https://github.com/user-attachments/assets/d98d59a3-c66a-4717-92e7-cfc5e95e70bd" />
 
 <img width="260" height="139" alt="asadh1" src="https://github.com/user-attachments/assets/e3b1fdb0-6986-43e5-976c-58e47f3cfef1" />
-<img width="311" height="192" alt="ezgif-68447fc9af74cc" src="https://github.com/user-attachments/assets/a4d90a75-5908-4426-be9b-9717220cafb8" />
 <img width="260" height="300" alt="a85fvr" src="https://github.com/user-attachments/assets/197a2dcf-a3c2-4d80-9990-abc1c1743fa0" />
-<img width="720" height="396" alt="ezgif com-video-to-gif-converter_5" src="https://github.com/user-attachments/assets/5d45f245-a77c-40fe-8348-ea1ca00d61f4" />
 <img width="286" height="206" alt="ezgif com-gif-maker" src="https://github.com/user-attachments/assets/0fc9f838-4a88-4333-8d6b-f85235cfe3b0" />
-<img width="240" height="426" alt="Untitled_video_-_Made_with_Clipchamp_3" src="https://github.com/user-attachments/assets/5b353f43-3a96-48e1-a867-112b0b1e6ce4" />
+<img width="280" height="280" alt="Untitled_video_-_Made_with_Clipchamp_3" src="https://github.com/user-attachments/assets/5b353f43-3a96-48e1-a867-112b0b1e6ce4" />
 
 
 
-
-
-
-
-
-
-
-<img width="800" height="313" alt="ezgif com-gif-maker (1) (1)" src="https://github.com/user-attachments/assets/6369c97a-f96e-422d-9d9c-6e515938806c" />
 
 
 
